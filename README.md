@@ -102,6 +102,6 @@ If you have any queries or feedback, feel free to reach out:
 Your Name
 📧 Aishwarya Burde
 Email: aishwaryaburde2000@gmail.com
-www.linkedin.com/in/aishwarya-burde
+ Linkdin: www.linkedin.com/in/aishwarya-burde
 
 
